@@ -1,2 +1,2 @@
-Pepega Computer Engineering Student trying to make stuff
+Pepega Computer Engineering student trying to make stuff
 
